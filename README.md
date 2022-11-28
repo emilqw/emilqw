@@ -1,0 +1,3 @@
+# @emilqw
+
+## Programmer 👨‍💻, Crypto Trader 🪙
